@@ -1,0 +1,1 @@
+# 1Q_ICT10_ST_GOZUM
